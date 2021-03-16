@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BettonnCZ
-- 👀 I’m interested in spessmen videohame
+- 👀 I’m interested in spessmen videogame
 - 🌱 I’m currently learning to spaghetti code
 - 💞️ I’m looking to collaborate on spaghetti cooking in spessmen
 - 📫 How to reach me: you don't
